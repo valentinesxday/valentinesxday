@@ -9,7 +9,7 @@
       <a href="https://katalyzorr.straw.page">sᴛʀᴀᴡᴘᴀɢᴇ</a> 　 ɞ
 
     
-    </p>
+
 <!--
 **valentinesxday/valentinesxday** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
