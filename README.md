@@ -5,6 +5,7 @@
 ᴀɴʏ ᴘʀɴ⠀⠀;⠀⠀ᴍɪɴᴏʀ⠀⠀;⠀⠀ᴇɴɢ & ᴇsᴘ
     </p>
 
+https://katalyzorr.straw.page . https://en.pronouns.page/@valentinezxday
 <!--
 **valentinesxday/valentinesxday** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
