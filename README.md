@@ -6,7 +6,8 @@
     </p>
   <p align="center">
  ʚ　      <a href="https://en.pronouns.page/@valentinezxday">ᴘʀᴏɴᴏᴜɴs.ᴘᴀɢᴇ</a> -
-      <a href="https://katalyzorr.straw.page">sᴛʀᴀᴡᴘᴀɢᴇ</a> 　 ɞ
+      <a href="https://katalyzorr.straw.page">sᴛʀᴀᴡᴘᴀɢᴇ</a> -
+          <a href="https://www.roblox.com/users/448865571/profile">ʀʙʟx ᴘʀᴏғ.</a> 　 ɞ
     <!--
 **valentinesxday/valentinesxday** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 Here are some ideas to get you started:
