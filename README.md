@@ -9,7 +9,7 @@
       <a href="https://katalyzorr.straw.page">sᴛʀᴀᴡᴘᴀɢᴇ</a> -
           <a href="https://www.roblox.com/users/448865571/profile">ʀʙʟx ᴘʀᴏғ.</a>　       ɞ
         <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=your-github-valentinesxdayh&label=sᴀᴄʀɪғɪᴄᴇs&color=423546&style=plastic&abbreviated=true&base=0">
+  <img src="https://komarev.com/ghpvc/?username=your-github-valentinesxdayh&label=sᴀᴄʀɪғɪᴄᴇs&color=423546&style=plastic&abbreviated=true&base=558">
 </p>
     <!--
 **valentinesxday/valentinesxday** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
